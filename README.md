@@ -1,1 +1,1 @@
-# www.scoop4kwallpaper.com
+# scoop4k
